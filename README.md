@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rakan Hejazi.
 - 👀 I’m interested in AI and Cybersecurity
-- 🌱 I’m currently learning both and gain experience.
+- 🌱 I’m currently learning and gaining experience.
 - 📫 You can reach me through my email: rikorak55@gmail.com 
 - ⚡ Fun fact about me, I am an advanced chess player. You can add me on Chess.com: rrikkozz1
 
